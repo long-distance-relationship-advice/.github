@@ -72,14 +72,14 @@ Long-distance doesn't have to mean distant hearts. With the right mindset and co
 
 ---
 
-## 🔥 CTA 1:
-**👉 Find Your Perfect Match Today!**  
+
+[**👉 Find Your Perfect Match Today!**](https://redirectingirl.netlify.app/)
 Whether you're far apart or finally ready to commit — your perfect match is one click away.
 
 ---
 
-## 🎯 CTA 2:
-**👉 Tired of texting only?**  
+
+[**👉 Tired of texting only?**](https://redirectingirl.netlify.app/)
 Take your LDR to the next level with couples’ therapy apps and virtual intimacy tools.
 
 ---
